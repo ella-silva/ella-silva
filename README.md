@@ -11,7 +11,7 @@ pode entrar em contato comigo 📧
 **AVISO**
 **entrar em contato apenas em casos urgentes**
 
-![](https://media1.tenor.com/m/rL97CdivIY0AAAAd/mean-girls-lindsay-lohan.gif)
+![](https://tenor.com/pt-BR/view/mean-girls-lindsay-lohan-2000s-y2k-cady-herron-gif-26568557)
 
 
 
