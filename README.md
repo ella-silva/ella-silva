@@ -11,7 +11,9 @@ pode entrar em contato comigo 📧
 **AVISO**
 **entrar em contato apenas em casos urgentes**
 
-![](https://tenor.com/pt-BR/search/meninas-malvadas-gifs)
+![]([InternetShortcut]
+URL=https://media1.tenor.com/m/rL97CdivIY0AAAAd/mean-girls-lindsay-lohan.gif
+)
 
 
 
