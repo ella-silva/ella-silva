@@ -11,7 +11,7 @@ pode entrar em contato comigo 📧
 **AVISO**
 **entrar em contato apenas em casos urgentes**
 
-![]()
-https://tenor.com/pt-BR/view/mean-girls-mean-girls-movie-cady-heron-gif-23727932
+![](https://tenor.com/pt-BR/view/mean-girls-mean-girls-movie-cady-heron-gif-23727932)
+
 
 
